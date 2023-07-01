@@ -1,4 +1,4 @@
-👋 Hi, I'm Farhan Ali(Autom-Ai), a graduate Software Engineer.
+👋 Hi, I'm #Farhan Ali(Autom-Ai), a #graduate Software Engineer.
 
 👀 I'm interested in solving problems and exploring new technologies.
 
